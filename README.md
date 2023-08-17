@@ -10,4 +10,4 @@ You can click the Preview link to take a look at your changes.
 --->
 estou interessado em aprender pixel art e programação
 to aprendendo ah desenhar 
-to afim d colaborar n
+amo anime e dormir e fds pra vida
